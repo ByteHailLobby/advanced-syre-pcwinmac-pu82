@@ -1,4 +1,4 @@
-# 
+# Código abierto Advanced SystemCare scripts para Mac OS | Inteligente Advanced SystemCare scripts para PC Windows. Con limitación de velocidad y integración en la nube — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
